@@ -1,2 +1,0 @@
-# LecturaCritica
-lo que sea
